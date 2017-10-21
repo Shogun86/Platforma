@@ -1,0 +1,2 @@
+# Platforma
+rozne naprawy
